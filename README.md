@@ -1,1 +1,0 @@
-# mandyg.github.io
