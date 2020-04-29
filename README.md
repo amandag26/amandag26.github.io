@@ -1,1 +1,1 @@
-# amandag26.github.io
+# mandyg.github.io
